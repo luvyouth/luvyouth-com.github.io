@@ -1,0 +1,15 @@
+h1.with-subtitle {
+  margin-bottom: 0px;
+  padding-bottom: 0.8rem;
+}
+
+a.subtitle {
+  font-size: 1.2rem;
+  display: inline-block;
+  padding-bottom: 2rem;
+  color: #2fb88c;
+}
+
+a.subtitle:hover {
+  text-decoration: underline;
+}
