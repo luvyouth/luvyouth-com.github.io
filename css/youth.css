@@ -13,3 +13,7 @@ a.subtitle {
 a.subtitle:hover {
   text-decoration: underline;
 }
+
+a.hot {
+  color: #2fb88c;
+}
