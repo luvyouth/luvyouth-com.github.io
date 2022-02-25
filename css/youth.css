@@ -15,5 +15,5 @@ a.subtitle:hover {
 }
 
 a.hot {
-  color: #2fb88c;
+  color: #2fb88c !important;
 }
