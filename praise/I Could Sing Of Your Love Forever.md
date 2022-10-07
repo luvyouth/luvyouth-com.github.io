@@ -1,0 +1,33 @@
+# I Could Sing Of Your Love Forever
+
+
+## Verse
+Over the mountains and the sea
+Your river runs with love for me
+And I will open up my heart
+And let the Healer set me free
+I'm happy to be in the truth
+And I will daily lift my hands
+For I will always sing
+Of when Your love came down yeah
+
+
+## Chorus
+I could sing of Your love forever
+I could sing of Your love forever
+I could sing of Your love forever
+I could sing of Your love forever
+
+
+## Bridge
+Oh I feel like dancing
+It's foolishness I know
+But when the world has seen the light
+They will dance with joy like we're dancing now
+
+CCLI Song # 1043199
+Martin Smith
+© 1994 Curious? Music UK (Admin. by Integrity Music Ltd)
+For use solely with the SongSelect® Terms of Use. All rights reserved. www.ccli.com
+Note: Reproduction of this sheet music requires a CCLI Music Reproduction License.  Please report all copies.
+CCLI Licence # 33148

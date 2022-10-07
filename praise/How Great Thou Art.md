@@ -1,0 +1,43 @@
+# How Great Thou Art
+
+
+## Verse 1
+O Lord my God when I in awesome wonder
+Consider all the works Thy hand hath made
+I see the stars I hear the mighty thunder
+Thy pow'r throughout the universe displayed
+
+
+## Chorus
+Then sings my soul my Saviour God to Thee
+How great Thou art how great Thou art
+Then sings my soul my Saviour God to Thee
+How great Thou art how great Thou art
+
+
+## Verse 2
+When through the woods and forest glades I wander
+And hear the birds sing sweetly in the trees
+When I look down from lofty mountain grandeur
+And hear the brook and feel the gentle breeze
+
+
+## Verse 3
+And when I think that God His Son not sparing
+Sent Him to die I scarce can take it in
+That on the Cross my burden gladly bearing
+He bled and died to take away my sin
+
+
+## Verse 4
+When Christ shall come with shout of acclamation
+And take me home what joy shall fill my heart
+Then shall I bow in humble adoration
+And there proclaim my God how great Thou art
+
+CCLI Song # 14181
+Stuart Wesley Keene Hine
+© Copyright 1949 and 1953 Stuart Hine Trust CIO Stuart K. Hine Trust (Admin. by Integrity Music Ltd)
+For use solely with the SongSelect® Terms of Use. All rights reserved. www.ccli.com
+Note: Reproduction of this sheet music requires a CCLI Music Reproduction License.  Please report all copies.
+CCLI Licence # 33148
